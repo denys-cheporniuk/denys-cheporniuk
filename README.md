@@ -1,1 +1,1 @@
-## Hi there, I'm Denys 👋
+## Hi there
